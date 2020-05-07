@@ -1,0 +1,3 @@
+#  Coronavirus
+
+La pandemia de enfermedad por coronavirus de 2019-2020 es una pandemia derivada de la enfermedad por coronavirus iniciada en 2019 (COVID-19), ocasionada por el virus coronavirus 2 del síndrome respiratorio agudo grave (SARS-CoV-2).4​5​ Se identificó por primera vez en diciembre de 2019 en la ciudad de Wuhan,6​ capital de la provincia de Hubei, en la República Popular China, al reportarse casos de un grupo de personas enfermas con un tipo de neumonía desconocida. Los individuos afectados tenían vinculación con trabajadores del Mercado Mayorista de Mariscos del Sur de China de Wuhan.7​8​ La Organización Mundial de la Salud (OMS) la reconoció como una pandemia global el 11 de marzo de 2020.9​
